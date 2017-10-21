@@ -1,0 +1,1 @@
+awak sayang saya tak?
